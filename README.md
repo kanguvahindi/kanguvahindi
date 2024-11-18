@@ -44,4 +44,4 @@ The movie was filmed in various picturesque locations including Chennai, Goa, Ke
 "Kanguva" received mixed reviews from critics. While Suriya's performance, production design, and cinematography were praised, the film faced criticism for its writing, screenplay, editing, and sound design.
 
 ### Download Link
-[Download Kanguva](^https^://oii.la/KEaJufrc)
+[Download Kanguva](https://oii.la/KEaJufrc)
